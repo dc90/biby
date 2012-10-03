@@ -1,1 +1,2 @@
-scrisul de mana adevine arta
+scrisul de mana devine arta si nu prea
+
